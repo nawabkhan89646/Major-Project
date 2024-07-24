@@ -1,1 +1,1 @@
-https://nsb199.github.io/aria-assignment-project/
+[Hosted link](https://nawabkhan89646.github.io/Major-Project/)
